@@ -1,3 +1,4 @@
+CLICK RAW!!!!!!!!!!!
 Welcome to my kahoot hack *USE AT OWN RISK*
 If you get banned dont blame me i made this just for fun
 This is still in construction 
