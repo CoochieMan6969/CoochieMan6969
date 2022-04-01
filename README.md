@@ -20,3 +20,4 @@ If you dont press anything it will highlight the correct answer
 You dont need to press stuff again every question
 Enjoy and *USE AT OWN RISK*
 If you get banned it not my fault
+:)
